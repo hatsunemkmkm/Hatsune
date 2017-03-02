@@ -1,0 +1,2 @@
+# Hatsune
+NO
